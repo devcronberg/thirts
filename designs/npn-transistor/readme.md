@@ -1,0 +1,1 @@
+skulle være public domain
